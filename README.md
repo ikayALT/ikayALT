@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @ikayALT
 
-Account for Team 2158 robot code (FRC) 
-  Main account: @ikay4
+this account is for team 2158 for FRC  
+Main account: @ikay4
+
+My main won't be active since I don't have time for personal projects
