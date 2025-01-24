@@ -1,6 +1,8 @@
-- 👋 Hi, I’m @ikayALT
+- @ikayALT, alt account used more than main account 
 
 this account is for team 2158 for FRC  
-Main account: @ikay4
+Main account: @ikay4 (zain's favorite github account)
 
-My main won't be active since I don't have time for personal projects
+syntax error enthusiest/
+frc team number number number whatever, #1 tin shady hater for the belt breaking on me/
+please give programming time to program
